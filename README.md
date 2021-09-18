@@ -1,1 +1,0 @@
-https://Anubispwnz.github.io/rsschool-cv/cv
